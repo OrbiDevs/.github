@@ -1,1 +1,1 @@
-## Official Orbi Account
+## Official Lynx Account
